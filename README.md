@@ -104,6 +104,6 @@ Regularly explore new features as these tools often update and expand their offe
 
 While Canva has set a high standard in the world of online graphic design tools, these free Canva alternatives demonstrate that creating professional-looking visuals doesn't have to be expensive. Each option we've discussed offers unique strengths, catering to various design needs and skill levels.
 
-For those interested in a more comprehensive comparison of both free and paid Canva alternatives, including detailed feature breakdowns and user reviews, check out this in-depth article on <b><a href="https://blog.zumvu.com/canva-alternatives/">Best Canva Alternatives</></b>. This resource can help you make an informed decision based on your specific requirements and budget.
+For those interested in a more comprehensive comparison of both free and paid Canva alternatives, including detailed feature breakdowns and user reviews, check out this in-depth article on <b><a href="https://blog.zumvu.com/canva-alternatives/">Best Canva Alternatives</b>. This resource can help you make an informed decision based on your specific requirements and budget.
 
 Remember, the best design tool is the one that aligns with your creative process and helps you achieve your visual goals. Don't hesitate to explore these free Canva substitutes to find the perfect fit for your design journey. With practice and the right tool, you can create impressive designs that captivate your audience, regardless of your budget constraints.
