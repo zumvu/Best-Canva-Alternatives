@@ -100,7 +100,7 @@ Join user communities to share ideas and get inspiration.
 
 Regularly explore new features as these tools often update and expand their offerings.
 
-Conclusion
+<strong>Conclusion</strong>
 
 While Canva has set a high standard in the world of online graphic design tools, these free Canva alternatives demonstrate that creating professional-looking visuals doesn't have to be expensive. Each option we've discussed offers unique strengths, catering to various design needs and skill levels.
 
